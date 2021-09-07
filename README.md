@@ -1,0 +1,4 @@
+- 🔭 Eu sou Gamer, YouTuber e desenvolvedor do bot Cloreto de Só Ódio
+- 🌱 Estou aprendendo ultimamente com programação de bots no celular
+- 💬 Ask me about ...
+- 📫 Para você se comunicar comigo me procure no discord por Nergy_#8007
